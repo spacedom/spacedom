@@ -4,7 +4,7 @@ The things that you will be able to experience in this adventure will not be pro
 
 ## Let's play
 
-**[GET READY!](https://metal-springs.000webhostapp.com)**
+**> [GET READY!](https://metal-springs.000webhostapp.com)**
 
 ### Credits
 
